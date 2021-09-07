@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @BetaPrimePsi
+- Hiya, I’m Beta and I'm vibing.
